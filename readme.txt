@@ -1,1 +1,0 @@
-Faaaaack scrotebag commercial capitalist coding bootcamps
